@@ -1,2 +1,2 @@
 # practical
-pooja uday patil
+pooja uday patill
