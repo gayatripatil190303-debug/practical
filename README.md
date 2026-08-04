@@ -1,2 +1,2 @@
 # practical
-mca2
+pooja uday patil
